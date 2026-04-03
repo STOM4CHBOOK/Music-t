@@ -1,16 +1,22 @@
-## Hi there 👋
+## Heyy ! *
 
-<!--
-**Music-t/Music-t** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+☆ im ren.
 
-Here are some ideas to get you started:
+☆ alex g/CG5 <!- fan
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+☆ ,prnouns - he/him
+
+☆ identity: queerplatonic & half aroace
+
+☆ fandoms(currently): unstable universe & AWTDE - phighting .. facelulz , brandonworks, itzskeetplayz & other args/shows !
+
+☆ dni list: toxic ships , any bad stuff
+
+☆ int list: fandoms that mentioned, forsaken/dw iwc
+
+☆ fun fact: i like to draw, animate & play, i have intense moodswings
+
+- im welcoming to everyone, feel free to c+h ^____^ !!
+
+- im lazy to code
+- my socials will be linked, if its not there i havent put it yet
